@@ -35,4 +35,4 @@
 ## Connect With Me
 
 -  Email: [suhailalrahili@gmail.com](mailto:suhailalrahili@gmail.com)
--  GitHub: [suhailalrahili-netizen](https://github.com/suhailalrahili-netizen)
+-  Linkedin : [Suhail ALrahili](https://www.linkedin.com/in/suhail-alrahili-7421873b6?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
